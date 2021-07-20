@@ -1,0 +1,1 @@
+# fluffy-octo-journey my names David Frye I'm 35 I live in Kingman arizona 86409. I am a stock broker and crypto currency broker. My phone number is (928) 419-2117 my adresses are fryedavid97@gmail.com bluedfg@icloud.com and I live at 2085 Hearne Ave, Kingman AZ 86409 
